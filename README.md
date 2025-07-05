@@ -14,6 +14,6 @@
 平台操作简单，点击即可播放，支持手机、平板和电脑等设备观看，随时畅享。我们还采用HTTPS加密技术，保障用户隐私，确保观看更加安全。
 立即访问，畅享日本AV免费高清影片，开始你的观影之旅！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/cv20250705/cv9 ）</span>
 
 
